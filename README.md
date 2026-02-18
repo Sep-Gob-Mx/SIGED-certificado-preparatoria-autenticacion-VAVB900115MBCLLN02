@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VAVB900115MBCLLN02
+VAVB900115MBCLLN02
